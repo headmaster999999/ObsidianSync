@@ -12,6 +12,7 @@ localCover: {{localCoverImage}}
 goodreads: 
 ---
 
+{{date}}} {{time}}
 ###### tags:
 
 # notes
