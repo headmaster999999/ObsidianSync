@@ -20,6 +20,7 @@ goodreads: https://www.goodreads.com/book/show/37641752-second-person?from_searc
 internal processes are guided by ones particular tapestry of signs and symbolic meanings. in the context of art, or what is (in Gabi's view) the externalizing of an internal process, taking the internal process of another as their inner world of signs symbols hence meaningmaking, all works of art however mundane have value, all things are worth studying, infinite lores to embed yourself in.
 
 > "But isnt that in itself fun? That this aesthetic executive function (to *choose* the degree to which you sense things) is the barrier between us and pure input?" (pg 5)
+
 > "the degree to which others are able to limit themselves unknowingly in order ot accommodate their realities has mean to me that i have the liberty to negotiate mine actively, though it is a lot of work" (pg 6)
 
 correctly identifying the agency to *choose* how exactly it is that you interface with stimuli in the external world, i.e. tailoring your world-sense. Inner world building, to live becomes to play. 
@@ -49,6 +50,6 @@ Isolation. Becoming lost in the wilderness of your inner world.
 >"I have a theoretical concept that has been with me since i was a teenager. I call it "fuck everyone in the house." I got it from pornography. The concept is meant to illustrate multiple deep empathy. If a person is to be understood, they are to be understood completely."
 
 
-
+a trestise on sincerity to yourself in the face of so many external forces which insist you assimilate and water down the quintessence of yourself (perhaps for love, fame, praise, etc). narrates a specific dialogue i held with myself for multiple years from the ages of 16 to 21. In the face of repeated failures to draw anyone close to me and to share in my inner world, would i be better off casting away continents of this world to be lost under oceans, in order to have a greater compatibility with others? The result would be somewhat dissapointing to gabi I fear. I capitulated in many ways, with varying success on very shaky, precarious legs (i am very much still a newborn lamb in regards to drawing the company of others). yet in many ways I can relate almost exactly to, not a particular experience described, but the knowledge of the possibility of this exact state, a relative nearness to it, and ultimately an ambition to it. there was a period where i felt an extreme sincerity in regards to myself and my expression of self and my capacity to draw near to myself and what I saw as most important. These were derived out of an earnest relationship with beauty composed and manifested by others in the forms of, principally, music and film. There was a coherent mental concept of what I did and did not enjoy. A sensibility which was tangible to me. one which brought me value in the form of preoccupational rumination.  Gabi descibes a single minded objective of grasping a concept in the mind with a steadfast grip, decoding an *idea* of something in the cyphers of a  a concept in 
 
 
