@@ -23,3 +23,5 @@ internal processes are guided by ones particular tapestry of signs and symbolic 
 "the degree to which others are able to limit themselves unknowingly in order ot accommodate their realities has mean to me that i have the liberty to negotiate mine actively, though it is a lot of work" (pg 6)
 
 correctly identifying the agency to *choose* how exactly it is that you interface with stimuli in the external world, i.e. tailoring your world-sense. Inner world building, to live becomes to play. 
+
+
