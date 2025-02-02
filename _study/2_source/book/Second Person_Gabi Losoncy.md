@@ -46,3 +46,7 @@ Ultimately, to walk up and down the paveways of your life is to be pushed and pu
 
 Isolation. Becoming lost in the wilderness of your inner world.
 
+>"I have a theoretical concept that has been with me since i was a teenager. I call it "fuck everyone in the house." I got it from pornography. The concept is meant to illustrate multiple deep empathy. If a person is to be understood, they are to be understood completely."
+
+
+
