@@ -15,5 +15,6 @@ goodreads: https://www.goodreads.com/book/show/37641752-second-person?from_searc
 
 # notes
 
-"I think what is neat about art is it can program-ize the extrapolation process of fleeing,... What is neat about this is once we admit to the reality of another internal process, everything has meaning" (pg. 4)
+"I think what is neat about art is it can program-ize the extrapolation process of feeling,... What is neat about this is once we admit to the reality of another internal process, everything has meaning" (pg. 4)
 
+internal processes are guided by ones particular tapestry of signs and symbolic meanings. in the context of art, or what is (in Gabi's view) the externalizing of an internal process,  
