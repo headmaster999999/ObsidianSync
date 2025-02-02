@@ -31,6 +31,5 @@ he appears to be castrated by porn and sex addiction. much to think about. how p
 
 
 
-perhaps it is a common experience to meet and leave the cherished company of anther person, but the weighty affect of the episode has it feel universally singular. 
-
+perhaps it is a common experience to meet and leave the cherished company of anther person, but the weighty affect of the episode in each instance has it feel universally singular. 
 
