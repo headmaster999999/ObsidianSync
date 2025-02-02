@@ -11,7 +11,6 @@ cover: {{coverUrl}}
 localCover: {{localCoverImage}}
 goodreads: 
 ---
-
 {{date}}} {{time}}
 ###### tags:
 
