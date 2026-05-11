@@ -16,3 +16,5 @@ goodreads:
 ###### tags:
 
 # notes
+
+i feel sort of uncomfortable with the degree to which ive become interested in nazi/fascist related media.... obviously ive considered myself an antifascist for years now, but still, ive been very drawn to media which contain reference to it... illustration, this novel. clearly im not the only one, this is a pretty popular novel. the baseline interest i have in transgr
