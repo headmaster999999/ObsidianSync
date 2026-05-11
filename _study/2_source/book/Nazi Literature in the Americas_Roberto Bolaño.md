@@ -13,7 +13,7 @@ localCover:
 goodreads:
 ---
 2026-05-10 2026-05-10
-###### tags:
+###### tags: [[fascism]] [[ocd]] [[vollmann]] [[transgression]] [[obsession]]  [[abjection]]
 
 # notes
 
@@ -23,6 +23,13 @@ im quite interested in the conditions qualifying these fabulous authors for incl
 
 i also was thinking alot about the extent to which i engage with the lives of the writers i read. i go through so much material by so many people and almost never research their lived associations and occupations.. some of the novels by these authors where intriguing to me. of the ones with descriptions without allusions to nazi imagery, would i have read and cherished them, ignorant to the underlying affinities? if i had, to what extent would i accept being disturbed by my mental proximity? to admiring the nazi inner world? unknowingly wanting  to nourish something like it in myself? 
 
-ive wanted to watch 13131311
+ive wanted to watch (directors name)'s Shoah as well as the Third Reich of Dreams... for reasons still mysterious even to me. Battailles exploration of the paranoia of rising fascism in his Blue fo Noon has been exciting for me to think about for years now...  
 
 i fear the laxity thats grown in me over the years. i should be more vigilant in stamping out the wrong ideas like ants. 
+
+what is the essential quality in fascist transgressive art and a (lol) innoffesive transgressive art? the aktionists were reacting to austria's complicity it the fascist scourge, prosecuting the bourgeois collaboration with it---not feeding it---despite the violence and mutilation and nihilism it seemed to project... 
+
+when vollmann writes the abject. writes himself into the exploitation and complicity---his product reaffirms a humanity.
+Complicity? 
+
+sontags essay at the end of story of the eye?
