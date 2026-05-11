@@ -23,7 +23,7 @@ im quite interested in the conditions qualifying these fabulous authors for incl
 
 i also was thinking alot about the extent to which i engage with the lives of the writers i read. i go through so much material by so many people and almost never research their lived associations and occupations.. some of the novels by these authors where intriguing to me. of the ones with descriptions without allusions to nazi imagery, would i have read and cherished them, ignorant to the underlying affinities? if i had, to what extent would i accept being disturbed by my mental proximity? to admiring the nazi inner world? unknowingly wanting  to nourish something like it in myself? 
 
-ive wanted to watch (directors name)'s Shoah as well as the Third Reich of Dreams as well as Hans-Jürgen Syberberg's Hitler a film from Germany... for reasons still mysterious even to me. Battailles exploration of the paranoia of rising fascism in his Blue of Noon has been endlessly exciting for me to think about for years now...  
+ive wanted to watch (directors name)'s Shoah as well as the Third Reich of Dreams as well as Hans-Jürgen Syberberg's Hitler a film from Germany... for reasons still mysterious even to me. Battailles exploration of the paranoia of rising fascism in his Blue of Noon has been endlessly exciting for me to think about for years
 
 i fear the laxity thats grown in me over the years. i should be more vigilant in stamping out the wrong ideas like ants. 
 
