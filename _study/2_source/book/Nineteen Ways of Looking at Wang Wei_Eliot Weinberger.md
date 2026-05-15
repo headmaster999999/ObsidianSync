@@ -55,6 +55,6 @@ my attempt at a translation:
 
 > empty mountain, no one to be seen
 > but the voice of man echos.
-> light, returning, enters deep into the forest
-> illuminating the green lichen, again.
+> light, on its return, enters deep into the forest
+> illuminating the green lichen again.
 
