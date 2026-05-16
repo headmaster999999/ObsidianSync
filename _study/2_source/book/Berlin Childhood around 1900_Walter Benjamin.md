@@ -12,7 +12,7 @@ cover: http://books.google.com/books/content?id=NXNREQAAQBAJ&printsec=frontcover
 localCover:
 goodreads:
 ---
-2026-05-15 2026-05-15
+2026-05-15 
 ###### tags: [[children]] [[childhood]] [[memory]]
 
 # notes
