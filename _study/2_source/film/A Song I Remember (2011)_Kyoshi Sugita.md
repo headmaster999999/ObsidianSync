@@ -16,7 +16,7 @@ duration: "100"
 country: []
 tags: mediaDB/tv/movie
 ---
-###### tags: 
+###### tags: [[photography]] [[violence]] [[burden]] [[inner wold]]
 
 # notes
 
@@ -25,12 +25,16 @@ proceeding from the notion of photography as a vector of depersonalization, viol
 with the foresight of the blind seer who sees so much, Takeshi produces a ghost. in snapping photo Takeshi enters into the photographer-photograph dialectic. Takeshi, holding the likeness of a woman now mangled---her essence nowhere except approximated in the parody contra-universe of photographs---in his hands, is now caretaker, guardian of a helpless spirit.
 now entered into the pact, obligated to the honor of his photo-brood, a helpless thing---hes bound to documenting the drama to full extent. Takeshi, with a sleepwalkers fascination---waits the moment obligatory of discretion, and follows.
 
-Trailing the man station after station. He finds him in a desolate street in the dark. Unable to resist, he raises his camera and takes the mans photo. Hearing the mechanical shutter, capturing his likeness, he turns to meets takeshis gaze. They part.
+Trailing the man station after station. He finds him in a desolate street in the dark. Unable to resist, he raises his camera and takes the mans photo. Hearing the mechanical shutter capturing his likeness, the man turns to meets takeshis gaze. They part.
 
-now with both photos, victim and perpetrator, stuffed together into his bag
+now with both portraits, victim and perpetrator, stuffed together into a bag together, all thats left is the interperetation, sublimation---now no longer synthesis offspring of positive dialectic, but a negative one. Not liberation, burden.
 
-he stands furtively outside a police station, watching the policemen. He turns and leaves---the twisted logic of the photographer: hes delivered justice in capturing the perpetrator in his own photographic prison---a frame of the film-cell. 
+Takeshi stands furtively outside a police station, watching the policemen. The stakes are suicide. To invite the poetryless penal code bureaucrats into the fold is to turn his inner-life of holy images into life laid bare of legal evidence is nothing less than self-annihilation. He turns and leaves---the twisted logic of the photographer: all the justice that needs deliverance is in capturing the perpetrator in his own photo prison---a sentencing of eternity to languish in his film-cell.
 
-She snap of the aperture is has a recoil like a gun, stand with your eye too close to the viewfinder, and the power of the photo will give you a black eye. Roped into the drama 
+he goes home with the burden of justice. Harbors it in himself like a martyr. 
+
+it is only later that, by pure chance, he meets the daughter of the murdered woman.
+
+She snap of the aperture has the recoil of a gun, stand with your eye too close to the viewfinder, and the power of the photo will give you a black eye. 
 
 burden of documentation. To know and harbor a knowledge no one else has, and to sheppard the lambs of the photograph away from the the places they may harm
