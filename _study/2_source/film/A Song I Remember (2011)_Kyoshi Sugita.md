@@ -35,6 +35,8 @@ he goes home with the burden of justice. Harbors it in himself like a martyr.
 
 it is only later that, by pure chance, he meets the daughter of the murdered woman.
 
+entering the daughter room after a day, paying respects to the shrine of the photographed woman, confronted with an uncanny double of the portrait he is keeper of---the woman in close up with a smile, illuminated by robust and vigorous sun---a happy moment, undoubtedly---the lightness of joy, enduring nothing's weight. Takeshi breaks down crying, much to the confusion of the daughter. To keep a photograph that carries the contra-weight of joy! it is the photographers tragedy, to be martyred by visions of the horrors of life. receptacles of the pain of others. to harbor them. to shepherd them to pastures far from civilization where they can be of no harm to others! to have these burdens of exile thrust upon you by duty! 
+
 She snap of the aperture has the recoil of a gun, stand with your eye too close to the viewfinder, and the power of the photo will give you a black eye. 
 
 burden of documentation. To know and harbor a knowledge no one else has, and to sheppard the lambs of the photograph away from the the places they may harm
